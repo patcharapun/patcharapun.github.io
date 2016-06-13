@@ -1,2 +1,2 @@
 # patcharapun.github.io
-my website
+hey i am mind i study in Christ University and this is my website
